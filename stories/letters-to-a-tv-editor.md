@@ -1,4 +1,4 @@
-How dumb can network [noun]s be? They cancel a [adjective]
+How dumb can network dalmations be? They cancel a [adjective]
 show such as "I'll Be a Monkey's [relative]" and
 replace it with another one of those [adjective] reality shows.
 Why don't they take all those [adjective] TV executives, put
