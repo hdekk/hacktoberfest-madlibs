@@ -3,11 +3,11 @@ _Marc_ rushes into her dressing room on the
 set of "One _Bell_ to Love." She's wearing a colorful
 _Barrel_ around her _Ankle_, a full-length _gong_,
 and very cool _Ear_. Off screen as well as on, she's
-independent and _timid_ and very comfortable in her own
+independent and [adjective] and very comfortable in her own
 _Foot_. You understand immediately why she's a role
 _Roll_ for millions of teenage _Noses_. Although
-she's rehearsing her _Potato_, she still finds time to _Never_
+she's rehearsing her _Potato_, she still finds time to [adverb]
 talk to us. But before we get far, she's called to the set. The interview
-ends _Eventually_. Before leaving, she turns and says, "Just because
+ends [adverb]. Before leaving, she turns and says, "Just because
 you're thought of as a _Giraffe_ doesn't mean you
 don't have a good head on your _Heads_."
