@@ -1,6 +1,6 @@
 Driving a car can be fun if you follow this [adjective] advice:
 
-When approaching a [noun] on the right, always blow your [noun].
+When approaching a rabbit on the right, always blow your [noun].
 
 Before making a [adjective] turn, always stick your [noun].out of the window.
 
