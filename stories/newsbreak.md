@@ -1,5 +1,5 @@
-The president passed his physical [noun] with flying
-[noun]s this morning. Doctors gave him a [adjective]
+The president passed his physical omelet with flying
+squirrels this morning. Doctors gave him a [adjective]
 bill of health, but advised him to [verb] at least twenty
 minutes a day and to eat less [adjective] food.
 
@@ -12,6 +12,6 @@ The [animal] then [past tense verb] the camera.
 
 Sometimes it doesn't pay to diet. Popular comedian
 [male name], who's lost more than [number] pounds,
-was virtually caught with his [noun]s down when his
+was virtually caught with his dogs down when his
 pants fell to the floor as he performed in front of an audience of five
-hundred enthusiastic [noun]s.
+hundred enthusiastic ponies.
